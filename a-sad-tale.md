@@ -5,3 +5,5 @@ But instead, he died. Brutally. And needlessly.
 
 Joffrey Baratheon was the one to do Ned in, but his story was only about to
 being, and let me assure you he will DEFINITELY NOT DIE!
+
+Then prince oberyn had his eyes crushed in.  
